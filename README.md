@@ -44,30 +44,7 @@ Here is a <a href="http://noliesplease.com/LonggameTech/zips/LonggameTech_mindte
 
 <a id="LonggameTech_mindtech_0001"></a>
 # LonggameTech_mindtech_0001
-```
-and focus now
-focusing on the sensations of your body
-focusing on the sensations of living
-and as you're here now, noticing how your life can be different
-how the worries you have, how the concerns, how the struggles... you can be better than all that
-you can be better than all the struggles, now
-and the things about you, when you know you want to do something, when you know you want to do something and yet it can feel so difficult
-and there's a part inside that wants to do it
-there's a part inside that knows that this is the right thing to do
-and that part, your highest self, is the self we're focusing on now
-focusing on, and growing
-feel that person within you
-feel that person, that pattern, within you, that self
-feel that self within you, that part within you that knows what the right thing to do is
-focus on that sensation of that person inside
-that person who's struggling to break free of the vices, of the unhelpful habits
-picture that person now
-the highest self
-picture them, feel yourself becoming more of that person
-like colors shifting, transforming into this new person
-focus on those sensations
-perhaps the body is tingling as you're changing now, as that person, that part of you, the highest part of you, is growing stronger and stronger now
-```
+and focus now // focusing on the sensations of your body // focusing on the sensations of living // and as you're here now, noticing how your life can be different // how the worries you have, how the concerns, how the struggles... you can be better than all that // you can be better than all the struggles, now // and the things about you, when you know you want to do something, when you know you want to do something and yet it can feel so difficult // and there's a part inside that wants to do it // there's a part inside that knows that this is the right thing to do // and that part, your highest self, is the self we're focusing on now // focusing on, and growing // feel that person within you // feel that person, that pattern, within you, that self // feel that self within you, that part within you that knows what the right thing to do is // focus on that sensation of that person inside // that person who's struggling to break free of the vices, of the unhelpful habits // picture that person now // the highest self // picture them, feel yourself becoming more of that person // like colors shifting, transforming into this new person // focus on those sensations // perhaps the body is tingling as you're changing now, as that person, that part of you, the highest part of you, is growing stronger and stronger now
 
 <a id="LonggameTech_mindtech_0002"></a>
 # LonggameTech_mindtech_0002
