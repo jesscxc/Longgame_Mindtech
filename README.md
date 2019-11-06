@@ -268,4 +268,48 @@ and as you're listening to my words now, just focusing, on the sensation of bein
 # LonggameTech_mindtech_0064
 closing your eyes now, as you think about this world, closing your eyes, now, and thinking about nature, thinking about the world, and your place in it, what you can do with the things that you have, the people that you can help // thinking about those people now, the people that you can help, and knowing that all it takes is that little bit of momentum, that little bit of momentum and you can do this, you can do this thing in order to become better // concentrate on that person inside, that person that creates what's needed to be created, what gets to be created // as you think about your life, now, you see the world, that you're in, that you're part of, that you, help // and as you're here, focusing on my words, focusing, on how you can be different inside, you can experience the world differently inside // instead of doing the easy things, you can, do the Longgame things // you can do the Longgame things, now, you can do the Longgame things // recognizing that what the Longgame is, is the understanding, that when you're in this moment right here, right now // and you, think about what the world is going to be like, a year from now, ten years, a hundred years, a thousand years, ten thousand years, a hundred thousand years, one million years, ten million years, one hundred million years, one billion years, ten billion years from now, one trillion // and as you're thinking about that and you feel yourself in this moment stretching out, stretching out your consciousness // and noticing, how you can do these things, in a way that resonates with you that, cooperates with you, that's what you can do, now, you can be this better person, this more productive person, this Longgamer who does what is the most Important thing, most Important with a capital I // thinking about that, and how your life is going to continue being that now, and in the future
 
+# LonggameTech_mindtech_0065
+being here in this moment, now
+as you feel yourself here, you perceive my words, perceive these words, you hear these words, and you're concentrating now, on feeling these words going deeper and deeper within you, going deeper and deeper within you in order to change, who you are, inside
+what you're going to focus on now, is that feeling of being a new place, being, not who you were, not the person who had those, habits that were less helpful
+you're a new person now, in this moment
+finding yourself able, to be this new person now
+think about this person that you want to be, that you want to become, this better self that you want to become
+and as you're thinking about this person now, this person who does the right things, who plays the Longgame, who does what's best, for humanity in the long-term
+as you're considering becoming that person now, focusing on that feeling of what that person does, how do you act, in the future
+how do you act, what do you do
+stay here in this moment and concentrate on that, feel that, now
+and as you're feeling that, noticing how you can let go of all the worries, all the concerns, all the doubts, and know that you will make this right
+you will make this right, it will be, right
+the world is changing, nature is changing, your place, in the scheme of things, is shifting
+realizing now how you're not just one being, how you're not just one, solitary mind, how your ideas, your consciousness, arises from many pieces, now, from many parts of yourself
+and these parts of yourself, lead to a better understanding of what's possible
+they lead to a better understanding of what's possible, now
+and as you're thinking about these words, and you're thinking about the world, feeling yourself changing now, changing, becoming different, becoming better, now
+
+# LonggameTech_mindtech_0066
+letting yourself be in this moment, now, here
+and as you feel the sensations of being here, in this moment
+knowing that you can relax into this
+relax into this, and know that everything you do, is being done the way that it should be done, now
+everything about how you are, how you act, how you feel
+everything is the way, that it should be
+relaxing into this moment now
+letting your fears fade
+and basking instead, in the light, of peacefulness, feeling light now
+feeling light, and peace, as you rest in this moment, knowing that what you do, is good, regardless of why you do things
+you can't tell always, from the start, how things will be, but know that everything, happens, for a mathematical reason, everything happens, for an understandable reason
+use this model
+use this model, and understand what's possible
+understand that what you need to do, you can do
+you can do it
+and think about the kind of person that does those things, the kind of person that does the things, that you are interested in doing
+the kind of person that knows the things, that you need to know, that has the things, that you really need to have, to do those things
+and as you're thinking about that, and you're thinking about the world, and what's possible
+and you're realizing, inside, now, that you can do the things that you need to do
+and when you come to that moment, you'll feel that, momentum
+and you'll do those things that'll help you, help the Longgamer inside of you
+the part of you, the pattern, that seeks to live, forever, it seeks to help humanity live forever
+the Longgamer, inside of you
+
 (more to be published)
