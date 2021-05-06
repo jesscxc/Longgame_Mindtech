@@ -3,7 +3,7 @@
 
 [Longgame Mindtech - Immerse Yourself (video)](https://youtu.be/-pYdXjhNxEM)
 
-## Guided Meditations for Increasing Creativity
+## Guided Meditations for Expanding Mind
 
 These are guided meditations for expanding mind, made by Longgame Tech.
 
