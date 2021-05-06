@@ -1,15 +1,17 @@
 
 # Longgame mindtech
 
-[LonggameTech Mindtech - Immerse Yourself (video)](https://youtu.be/-pYdXjhNxEM)
+[Longgame Mindtech - Immerse Yourself (video)](https://youtu.be/-pYdXjhNxEM)
 
 ## Guided Meditations for Increasing Creativity
 
-These are guided meditations for increasing creativity, made by LonggameTech.
+These are guided meditations for expanding mind, made by Longgame Tech.
 
 Hope you find them helpful, fun, and interesting!
 
-(more to be published)
+Dedicated to the public domain (via the [0BSD license](https://choosealicense.com/licenses/0bsd/)).
+
+(many more to be published)
 
 Individual audio files:
 <a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0001.mp3">LonggameTech_mindtech_0001.mp3</a> <a href="#LonggameTech_mindtech_0001">[script]</a>
@@ -313,4 +315,4 @@ as you, think, about the world // as you notice your life // as you notice, how 
 # LonggameTech_mindtech_0079
 focus on the sensation of being a person, being an entity in this world, now // close your eyes, and feel yourself here in this moment, feel yourself here in this moment and notice the sensations, of being here // the sensations of being an animal, in this space, as you listen to these words, as you perceive these words // and as you're noticing this, now, think about a pond // imagine a beautiful pond, and you're sitting on a bench, or a rock, or just the grass, and looking out at the pond // and you see animals, you feel the light of the Sun, the warmth // you see the water, the calming water // enjoying being in this moment, here // and while you're focusing, on this // while you're focusing on this moment, focusing on being, here, noticing, how you can change, how you feel // you can change what you feel, when you concentrate on it // you can change, what you sense, of your body // you can change, how you perceive your own life // and noticing now, that you're beyond, what you previously thought you were // you're a new kind of being, a being, made of peace, and serenity, purpose, now // focus on that, inside of you, focus on those, purposes, inside of you, that give your life meaning // and as you're, watching the moment, as you're feeling it, now, noticing how you can go, more and more, into this // letting yourself be here, in this space, relaxing into it // allowing all your thoughts, to dissolve, so you're just here, right here in this moment, now // and as you're here, you're noticing how you're getting better, you're able to do the things, now, that you thought you weren't able to do // and you're finding yourself able to do them
 
-(more to be published)
+(many more to be published)
