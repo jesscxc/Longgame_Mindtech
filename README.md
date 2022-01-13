@@ -1,15 +1,11 @@
 
 # Longgame mindtech
 
-[Longgame Mindtech - Immerse Yourself (video)](https://youtu.be/-pYdXjhNxEM)
-
 ## Guided Meditations for Expanding Mind
 
-These are guided meditations for expanding mind, made by Longgame Tech.
+These are guided meditations for expanding mind and increasing creativity, developed with Longgame Tech.
 
-Hope you find them helpful, fun, and interesting!
-
-Dedicated to the public domain (via the [0BSD license](https://choosealicense.com/licenses/0bsd/)).
+All of this art (scripts, recordings, etc) is dedicated to the public domain (via the [0BSD license](https://choosealicense.com/licenses/0bsd/), the [CC0 license](https://choosealicense.com/licenses/cc0-1.0/), the [Unlicense](https://choosealicense.com/licenses/unlicense/), or your choice of whatever is most helpful). You can remix and reuse however you'd like, without attribution.
 
 (many more to be published)
 
