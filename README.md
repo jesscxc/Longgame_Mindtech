@@ -10,33 +10,33 @@ All of this art (scripts, recordings, etc) is dedicated to the public domain (vi
 (many more to be published)
 
 Individual audio files:
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0001.mp3">LonggameTech_mindtech_0001.mp3</a> <a href="#LonggameTech_mindtech_0001">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0002.mp3">LonggameTech_mindtech_0002.mp3</a> <a href="#LonggameTech_mindtech_0002">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0003.mp3">LonggameTech_mindtech_0003.mp3</a> <a href="#LonggameTech_mindtech_0003">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0004.mp3">LonggameTech_mindtech_0004.mp3</a> <a href="#LonggameTech_mindtech_0004">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0005.mp3">LonggameTech_mindtech_0005.mp3</a> <a href="#LonggameTech_mindtech_0005">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0006.mp3">LonggameTech_mindtech_0006.mp3</a> <a href="#LonggameTech_mindtech_0006">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0007.mp3">LonggameTech_mindtech_0007.mp3</a> <a href="#LonggameTech_mindtech_0007">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0008.mp3">LonggameTech_mindtech_0008.mp3</a> <a href="#LonggameTech_mindtech_0008">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0009.mp3">LonggameTech_mindtech_0009.mp3</a> <a href="#LonggameTech_mindtech_0009">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0010.mp3">LonggameTech_mindtech_0010.mp3</a> <a href="#LonggameTech_mindtech_0010">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0011.mp3">LonggameTech_mindtech_0011.mp3</a> <a href="#LonggameTech_mindtech_0011">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0012.mp3">LonggameTech_mindtech_0012.mp3</a> <a href="#LonggameTech_mindtech_0012">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0013.mp3">LonggameTech_mindtech_0013.mp3</a> <a href="#LonggameTech_mindtech_0013">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0014.mp3">LonggameTech_mindtech_0014.mp3</a> <a href="#LonggameTech_mindtech_0014">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0015.mp3">LonggameTech_mindtech_0015.mp3</a> <a href="#LonggameTech_mindtech_0015">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0016.mp3">LonggameTech_mindtech_0016.mp3</a> <a href="#LonggameTech_mindtech_0016">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0017.mp3">LonggameTech_mindtech_0017.mp3</a> <a href="#LonggameTech_mindtech_0017">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0018.mp3">LonggameTech_mindtech_0018.mp3</a> <a href="#LonggameTech_mindtech_0018">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0019.mp3">LonggameTech_mindtech_0019.mp3</a> <a href="#LonggameTech_mindtech_0019">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0020.mp3">LonggameTech_mindtech_0020.mp3</a> <a href="#LonggameTech_mindtech_0020">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0021.mp3">LonggameTech_mindtech_0021.mp3</a> <a href="#LonggameTech_mindtech_0021">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0022.mp3">LonggameTech_mindtech_0022.mp3</a> <a href="#LonggameTech_mindtech_0022">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0023.mp3">LonggameTech_mindtech_0023.mp3</a> <a href="#LonggameTech_mindtech_0023">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0024.mp3">LonggameTech_mindtech_0024.mp3</a> <a href="#LonggameTech_mindtech_0024">[script]</a>
-<a href="http://noliesplease.com/LonggameTech/mindtech/0001_to_0025/LonggameTech_mindtech_0025.mp3">LonggameTech_mindtech_0025.mp3</a> <a href="#LonggameTech_mindtech_0025">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0001.mp3">LonggameTech_mindtech_0001.mp3</a> <a href="#LonggameTech_mindtech_0001">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0002.mp3">LonggameTech_mindtech_0002.mp3</a> <a href="#LonggameTech_mindtech_0002">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0003.mp3">LonggameTech_mindtech_0003.mp3</a> <a href="#LonggameTech_mindtech_0003">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0004.mp3">LonggameTech_mindtech_0004.mp3</a> <a href="#LonggameTech_mindtech_0004">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0005.mp3">LonggameTech_mindtech_0005.mp3</a> <a href="#LonggameTech_mindtech_0005">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0006.mp3">LonggameTech_mindtech_0006.mp3</a> <a href="#LonggameTech_mindtech_0006">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0007.mp3">LonggameTech_mindtech_0007.mp3</a> <a href="#LonggameTech_mindtech_0007">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0008.mp3">LonggameTech_mindtech_0008.mp3</a> <a href="#LonggameTech_mindtech_0008">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0009.mp3">LonggameTech_mindtech_0009.mp3</a> <a href="#LonggameTech_mindtech_0009">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0010.mp3">LonggameTech_mindtech_0010.mp3</a> <a href="#LonggameTech_mindtech_0010">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0011.mp3">LonggameTech_mindtech_0011.mp3</a> <a href="#LonggameTech_mindtech_0011">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0012.mp3">LonggameTech_mindtech_0012.mp3</a> <a href="#LonggameTech_mindtech_0012">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0013.mp3">LonggameTech_mindtech_0013.mp3</a> <a href="#LonggameTech_mindtech_0013">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0014.mp3">LonggameTech_mindtech_0014.mp3</a> <a href="#LonggameTech_mindtech_0014">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0015.mp3">LonggameTech_mindtech_0015.mp3</a> <a href="#LonggameTech_mindtech_0015">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0016.mp3">LonggameTech_mindtech_0016.mp3</a> <a href="#LonggameTech_mindtech_0016">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0017.mp3">LonggameTech_mindtech_0017.mp3</a> <a href="#LonggameTech_mindtech_0017">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0018.mp3">LonggameTech_mindtech_0018.mp3</a> <a href="#LonggameTech_mindtech_0018">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0019.mp3">LonggameTech_mindtech_0019.mp3</a> <a href="#LonggameTech_mindtech_0019">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0020.mp3">LonggameTech_mindtech_0020.mp3</a> <a href="#LonggameTech_mindtech_0020">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0021.mp3">LonggameTech_mindtech_0021.mp3</a> <a href="#LonggameTech_mindtech_0021">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0022.mp3">LonggameTech_mindtech_0022.mp3</a> <a href="#LonggameTech_mindtech_0022">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0023.mp3">LonggameTech_mindtech_0023.mp3</a> <a href="#LonggameTech_mindtech_0023">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0024.mp3">LonggameTech_mindtech_0024.mp3</a> <a href="#LonggameTech_mindtech_0024">[script]</a>
+<a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0025.mp3">LonggameTech_mindtech_0025.mp3</a> <a href="#LonggameTech_mindtech_0025">[script]</a>
 
-Here is a <a href="http://noliesplease.com/LonggameTech/zips/LonggameTech_mindtech_0001_to_0025.zip">zip file of the first 25 guided meditations</a>.
+Here is a <a href="https://noliesplease.com/longgametech/zips/LonggameTech_mindtech_0001_to_0025.zip">zip file of the first 25 guided meditations</a>.
 
 [scripts]
 
