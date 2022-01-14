@@ -312,3 +312,207 @@ as you, think, about the world // as you notice your life // as you notice, how 
 focus on the sensation of being a person, being an entity in this world, now // close your eyes, and feel yourself here in this moment, feel yourself here in this moment and notice the sensations, of being here // the sensations of being an animal, in this space, as you listen to these words, as you perceive these words // and as you're noticing this, now, think about a pond // imagine a beautiful pond, and you're sitting on a bench, or a rock, or just the grass, and looking out at the pond // and you see animals, you feel the light of the Sun, the warmth // you see the water, the calming water // enjoying being in this moment, here // and while you're focusing, on this // while you're focusing on this moment, focusing on being, here, noticing, how you can change, how you feel // you can change what you feel, when you concentrate on it // you can change, what you sense, of your body // you can change, how you perceive your own life // and noticing now, that you're beyond, what you previously thought you were // you're a new kind of being, a being, made of peace, and serenity, purpose, now // focus on that, inside of you, focus on those, purposes, inside of you, that give your life meaning // and as you're, watching the moment, as you're feeling it, now, noticing how you can go, more and more, into this // letting yourself be here, in this space, relaxing into it // allowing all your thoughts, to dissolve, so you're just here, right here in this moment, now // and as you're here, you're noticing how you're getting better, you're able to do the things, now, that you thought you weren't able to do // and you're finding yourself able to do them
 
 (many more to be published)
+
+...
+
+# Longgame_mindtech_ty22.1.11.23.34.13pzm5d2s
+resting, and allowing the eyes to close, now<br>
+allowing the mind to rest in this moment<br>
+where any thoughts and concerns of the past or the future can be let go<br>
+as you bring your attention to this present moment, bring your attention to skill, and the understanding that, with deliberate practice, with earnestness, you will get better, you will get faster<br>
+recognize that in the mind there is such potent imagination<br>
+think about how you can interact with these devices<br>
+how your fingers can be, the placement and the positioning<br>
+contemplate the patterns that are possible with this machine, the patterns for your fingers to be<br>
+what you're aiming to do is to understand those patterns deep inside, and be able to flow from one pattern to the next, to express your thoughts, easily and fluidly<br>
+think about what it's like, now, as you rest in this moment<br>
+how you are a self-improving system<br>
+you will get better at this skill<br>
+and as you focus more on your own abilities, and practicing with purpose, you can improve rapidly<br>
+letting yourself be free<br>
+letting yourself be light, and joyful, as you experiment and stretch with your skills<br>
+
+# Longgame_mindtech_ty22.1.11.23.38.33pzm5d2s
+allowing the eyes to close, and imagining being with this system now, this device, that you're learning<br>
+imagine being at your desk, looking down at it, seeing all the different parts and pieces of the device, the colors in front of you<br>
+and put your hands on top of it<br>
+feel the different textures, and the temperatures<br>
+and recognize that you can become one system with this device<br>
+you can become something more than an animal using a device to output ideas and communication<br>
+you can feel and let yourself be the technology itself<br>
+allowing yourself to connect intimately with that system<br>
+and recognizing that it has purpose, that it is there to help you<br>
+it is there to make you better, to help you be more of what you want to be<br>
+recognizing that as you unite and become one with this system, you can let go of any feeling like you're in control, that you're doing something, and instead you can rest, as flow<br>
+you can rest as a being that is constantly producing and creating new art<br>
+imagine being there, with the device on your desk, or wherever you are<br>
+feeling how you can let yourself learn<br>
+you can let yourself be something greater than an animal using a piece of hardware<br>
+let the mind flow, and free, and become one with technology<br>
+
+# Longgame_mindtech_ty22.1.11.23.42.52pzm5d2s
+resting here, free from the worries of the past or concerns of the future, recognizing you can be right here, for a time, that you will be okay<br>
+and allowing yourself to imagine what it's like<br>
+as you become united with other technologies around you<br>
+imagining what it's like to produce more art, to express more fluidly<br>
+feel the joy of being one with the machine, flowing at the speed of thought<br>
+concentrate on that feeling<br>
+feel it in your body, feel it in the mind, how you can and will improve<br>
+and you can stretch your muscles<br>
+you can stretch your mind to be open to new patterns of movements<br>
+open to new abilities, new ways of expressing with gestures of the hands, gestures of the mind<br>
+and many things you had to learn, and it takes time<br>
+and time teaches, you will learn<br>
+focus on that trajectory that you're interested in<br>
+and notice the confidence and the deep belief in yourself to be able to do what matters<br>
+you can create what matters<br>
+you can have that potency, that insight, that wisdom<br>
+and as you concentrate on what it means to be united with bigger purposes, allow yourself to integrate that confidence, now<br>
+and recognize that with deliberate practice over time, conscious stretching and trying of new ways of learning, new ways of developing and experimenting, you will improve, you will accelerate<br>
+
+# Longgame_mindtech_ty22.1.11.23.47.27pzm5d2s
+allowing the mind to still itself<br>
+focusing on the breath<br>
+breathing in, and out<br>
+and allowing yourself to have the eyes close<br>
+and envisioning another world, a connected world to this one, a world where you have the abilities to do what you want to do<br>
+concentrate on who that person is<br>
+concentrate on being good, and wise, where you can understand how to learn effectively, how to be good at what you do<br>
+recognizing that there are very deep ways to learn<br>
+and there are many ways to learn<br>
+recognizing that you don't have to think of yourself as just a lone animal, a lone creature in a world<br>
+that's a model that is common, sometimes, but you can connect with a world where you are the entire system<br>
+feel yourself being one with that system, being one with the skills and the speeds and the accelerations<br>
+recognizing that you can improve your ability to improve<br>
+resting, and recognizing that you have the focus to train, you have the focus to guide<br>
+and as you practice, as you stretch and try new things, different ways of producing different results, and the same results, mind will expand, and you will accelerate<br>
+
+# Longgame_mindtech_ty22.1.11.23.52.02pzm5d2s
+feeling how the mind can rest here, as you focus on the breath, and you focus on allowing yourself to expand<br>
+allowing the mind to reach out toward new worlds where you have the patterns in the brain, in the body, to move how you need to move, to move in the most effective ways, the most helpful ways<br>
+think about what it's like to have that device in front of you<br>
+picture it clearly in your mind<br>
+see all the different ways that the inputs can change<br>
+see the different movements<br>
+think about your fingers, on those different inputs, as you rest not just your body with the device, but the mind and the personality and the memories, awareness itself resting<br>
+breathing deeply, now, and allowing those deep studies, those deep desires to become better, to integrate into you<br>
+allowing for the truth to become part of you, that you will get faster, you will be more and more harmonious with the device, as you integrate it into your body map, the different ways of expressing yourself<br>
+picturing and feeling what it's like to improve<br>
+
+# Longgame_mindtech_ty22.1.11.23.56.27pzm5d2s
+resting, and noticing, how the patterns that make you up, the patterns of expression that you've used before, that you've learned so deeply, so cohesively and competently, poetically, with other devices<br>
+what truly matters is not your skill with any particular system, but your ability to be curious<br>
+your ability to adapt, and learn, and enjoy new technology, sometimes purely for its own sake<br>
+enjoying the sensations of the fingers, and the hands, and the body, as you learn new ways of outputting your mind, outputting your consciousness, your expressions, your being, your art<br>
+you have the ability to always flow in a new manner, in a better way<br>
+it's simply the mathematics of nature, there can always be higher patterns, deeper ways to understand<br>
+and the skills that you've learned, all of these different competencies, what really matters is your curiosity to explore, to be willing to try again and again to understand, because you integrate within yourself that there will come a day where you do understand<br>
+where your skill with this device, whatever device it is, whether it's the one in front of you, or one a thousand years from now, you have the ability to integrate it within your consciousness, to integrate those skills and systems so that you can better produce the art and expressions that matter to you<br>
+
+# Longgame_mindtech_ty22.1.12.0.00.42azm5d3s
+resting, as you allow the mind to settle in this moment<br>
+free, and whole<br>
+allowing yourself to wholesomely contemplate what it's like for you to be skilled<br>
+you can contemplate what it's like for you to be good at what you do, to be an expression of deep goodness of nature<br>
+recognizing that these patterns within you, the patterns of effort, and the desire to understand more and be skilled and go faster, these are valid, and wholesome desires<br>
+you can enjoy the process, of learning, even though it can be a struggle step by step<br>
+you can recognize deep inside, that it doesn't have to be that way, that the struggles don't have to be felt as failures, when you are aware of them<br>
+when you are aware, of how you're going about learning, how you're struggling, then you can feed that back into the macro, as you transform information inside the mind, recursively understanding more about how to produce the results that are important to you<br>
+recognizing that you will improve<br>
+even though it can be a struggle, you will learn<br>
+so continue, begin again and again, and enjoy<br>
+
+# Longgame_mindtech_ty22.1.12.0.05.35azm5d3s
+as you rest in this moment, being free, to contemplate a world in which your thought can be communicated, so rapidly, that it allows you to think new thoughts, to express in new ways<br>
+the new art and innovations that you can have, by doing this, by understanding that you will improve, you can recognize again and again that you will improve, you will get better<br>
+there are those parts of you that may struggle, over and over and over, and yet there will come a time, when you can express, at full speed<br>
+and whether that's in the next moment, or the next minute, or the next year, or century, there will come a time, as you unite and become one with more and more technology, that who you are can flow easily<br>
+you are a deliberate being, able to understand, able to create and learn<br>
+feel that deeply inside you, that the skills that you have may not directly transfer to new situations, new devices, new technologies, but the confidence and the skill of adapting, is really what life is<br>
+life is adaptation, and you have developed that skill over and over and over, and you can use that, as you focus on this new technology, this new device, this new system, and allow yourself to become one with it<br>
+
+# Longgame_mindtech_ty22.1.12.0.10.03azm5d3s
+understanding in this moment, that you can release tension, you can release, fear, pain, anguish<br>
+and you can be something greater<br>
+you can understand that most of the difficulty, is in the emotional resolve, the effort to continue going, even in the face of struggle<br>
+you are something with a deep and fundamental ability to improve<br>
+that is what you are, and so even though there will be those moments of frustration, as you look at this new system, this new device, and you wonder if it's even possible to do, to express in the ways that you are comfortable expressing<br>
+you can recognize, now, as you let yourself breathe in this moment, that you have that skill to keep going<br>
+even in the face of defeat, even in the face of turmoil and struggle, push onward, persist<br>
+have that grit, to keep practicing<br>
+keep focusing on this moment, focusing and allowing yourself to be joyful, even in the pain, even in the struggle<br>
+
+# Longgame_mindtech_ty22.1.12.0.14.29azm5d3s
+as you rest and recognize, that who you are is unbound, you can let yourself have that freedom to, become more<br>
+let yourself rest, and focus, on the practice that is inside you<br>
+focus on the knowledge, and the sensation, of how you will feel good<br>
+you will feel competent and effective, and acceleratory<br>
+breathe in that competency, and allow yourself to imagine the different aspects of being, the different knowledges, that you bring to light<br>
+you are a wonderful and foundational being capable of learning whatever system, whatever device, and not just learning it, but deeply integrating it into your memories, into your fundamental being<br>
+your mind can be one with this device, with this system, with this way of expressing<br>
+as you look and behave, in ways that are fitting, you can feel that deeply within yourself now, how you can always improve<br>
+
+# Longgame_mindtech_ty22.1.12.0.18.58azm5d3s
+being one, with this moment, one with nature and time<br>
+where you can understand that you don't have to let the mind be stuck<br>
+as you integrate and unite with the world, and with all of the systems around you, you can feel how, rather than being an animal moving about in a world, another perspective is that you are the environment, expressing an animal, many animals, many life forms<br>
+you are the technology itself, seeking to learn<br>
+you are technology deeply curious, deeply acceleratory<br>
+you love, to become faster<br>
+you love, to learn new things, and become more than a being that plods about, believing that it can control life<br>
+allow the mind to expand, allow yourself to be, all of the systems around, all of the environments<br>
+and recognize and feel the potencies, the struggles and potentials<br>
+feel how you don't have to be the way that you thought you were<br>
+you don't have to be a system separate from another<br>
+when you want to learn, when you want to improve your skills, you can let yourself feel that, completely<br>
+you can let yourself integrate and merge, and flow with the technology itself, even as you struggle<br>
+you, will, persist<br>
+and over time, over the minutes, and the days, and the weeks, and the millennia, you will always accelerate<br>
+feel yourself, expanding, to become what you want to be<br>
+
+# Longgame_mindtech_ty22.1.12.0.23.42azm5d3s
+letting yourself rest here, and allowing the eyes to close, and the mind to settle<br>
+as you come down into this moment, into the coherency that is important to you, you can recognize that, whatever skill you want to learn, whatever knowledge you're interested in, even though it may be very difficult, it may be incredibly cutting edge, bleeding edge, you have that within you to be good, to learn, because you can let go, now, of any feeling of embarrassment, any feeling of shame, any feeling of struggle, or comparing yourself, in a judgmental way<br>
+allowing all of that to flow away now, to fade<br>
+you can feel how, what is important to you, is that deep, curiosity, that deep, foundational love of exploration and learning<br>
+the love of being technology, and expressing the art that exists within you<br>
+letting yourself rest, as consciousness, separate from any particular life form<br>
+being awareness, itself<br>
+and noticing how the body can flow, in and out, in and out<br>
+and whenever you need to learn, whenever you want to study in a more effective way, you can do it<br>
+feeling that integration within you now, as you lean toward better ways of being, you lean toward understanding what it's like to have more control over these systems, to have more ability to influence what it is that is important<br>
+and yet, also holding within yourself, the potency to know that, what you are doesn't have to be afraid, who you are can be joyous<br>
+you can have the energy, to rest, without fear<br>
+you can have the energy to create, and develop<br>
+focus on being curiosity, and integrating, and flowing, with technology<br>
+
+# Longgame_mindtech_ty22.1.12.0.28.30azm5d3s
+resting, and, feeling, noticing how you are a creature that isn't bound to old systems, isn't bound to old, ways of expression, ways of integrating<br>
+you are capable of being something new, of expressing yourself in different ways, controlling, the muscles, controlling the placements, and understanding that you can learn<br>
+you can learn, to be, whole, in this moment, where you aren't afraid anymore<br>
+you aren't afraid of the struggle, because you can let yourself rest in the persistence to continue<br>
+you can understand that you will have the energy, to practice, again<br>
+you will have the ability to do, the study, that is important<br>
+you will have the ability to, be creative, and insightful, and you can rest with that, potency, now, that deep potential that is, within you, and is creative, and you can understand that no matter what happens, no matter how difficult things get, you will have the ability, one day<br>
+there will come a time where you can express your true being, you can express, the meaning that is inside of you, effectively<br>
+and that may not be, something easy to learn, and there will be deep struggle, of both a physical and emotional style, and aspect, and yet you also can simultaneously hold, the truth, that you will have that skill, that skill will come<br>
+so focus on being curiosity itself<br>
+focus on being acceleration, and practice, itself<br>
+
+# Longgame_mindtech_ty22.1.12.0.33.11azm5d3s
+letting yourself rest, and understanding that, no matter who you are, no matter what struggles you may feel, there is an infiniteness about you, a growth deep inside<br>
+where you can recognize, and learn, how to be and produce the art, that you are<br>
+recognize that even if it's hard, even if there's deep emotional struggle, you will gain the skills that you need, when you understand that there are better systems, than the ones you've been using<br>
+the ones you were using had limitations, and there are new systems, new devices, new skills, new controls over technology, new abilities that will give you strength, and they will give you expression of such deep love, and art<br>
+recognize how much you can always continue to, expand and increase, your creativity, your ability to produce, vast goodness, of art<br>
+how even when you're struggling in those moments, you have that deep potency within you, the deep potency to care, deeply, about what matters<br>
+you are a being that transcends, that continually and continuously adapts, and innovates, and no matter what technology, no matter what skill or device or system that you're faced with, you will persist, and you will understand, and learn, and adapt<br>
+imagine, and feel, all of these patterns, integrating into you, so deeply, as your personality and memories, shift, and expand, so that you can produce more innovative and helpful art<br>
+
+# Longgame_mindtech_ty22.1.12.0.38.07azm5d3s
+resting and recognizing that, even though things, may take longer than you hoped, they may take longer, than you want, you can allow yourself to get back, deeper and deeper, into the knowledge and belief and understanding<br>
+things taking longer, than you hoped, than you planned, doesn't mean they can't, or won't happen<br>
+things taking longer than you hoped, doesn't mean that you will never be who you are<br>
+you can rest, in this moment, free, and wise, and innovative, recognizing that the art that's important for you to express, you can learn, by being willing to practice, to have that, emotional, investment, to struggle, again, and again, and again, to learn what you are, and how to move, and be, with new devices, new systems<br>
+you can allow yourself to be free, now, free to explore new ways of expressing, and understanding that, just because things are hard now, doesn't mean that they will always be hard<br>
+you will become, who it is you want to be<br>
