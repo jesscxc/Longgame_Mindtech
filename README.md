@@ -9,6 +9,8 @@ All of this art (scripts, recordings, etc) is dedicated to the public domain (vi
 
 (many more to be published)
 
+<a href="https://noliesplease.com/longgametech/mindtech/longgame_mindtech_25_guided_meditations.zip">zip file of 25 guided meditations to expand mind (34MB)</a>
+
 Individual audio files:<br>
 <a href="https://noliesplease.com/longgametech/mindtech/longgame_mindtech_ty17.11.28.4.20.19azm5d2s.mp3">longgame_mindtech_ty17.11.28.4.20.19azm5d2s.mp3</a> <a href="#longgame_mindtech_ty17.11.28.4.20.19azm5d2s">[script]</a><br>
 <a href="https://noliesplease.com/longgametech/mindtech/longgame_mindtech_ty17.11.28.4.23.54azm5d2s.mp3">longgame_mindtech_ty17.11.28.4.23.54azm5d2s.mp3</a> <a href="#longgame_mindtech_ty17.11.28.4.23.54azm5d2s">[script]</a><br>
@@ -35,10 +37,6 @@ Individual audio files:<br>
 <a href="https://noliesplease.com/longgametech/mindtech/longgame_mindtech_ty17.12.4.2.46.31azm5d1s.mp3">longgame_mindtech_ty17.12.4.2.46.31azm5d1s.mp3</a> <a href="#longgame_mindtech_ty17.12.4.2.46.31azm5d1s">[script]</a><br>
 <a href="https://noliesplease.com/longgametech/mindtech/longgame_mindtech_ty17.12.4.2.52.03azm5d1s.mp3">longgame_mindtech_ty17.12.4.2.52.03azm5d1s.mp3</a> <a href="#longgame_mindtech_ty17.12.4.2.52.03azm5d1s">[script]</a><br>
 <a href="https://noliesplease.com/longgametech/mindtech/longgame_mindtech_ty17.12.4.2.57.30azm5d1s.mp3">longgame_mindtech_ty17.12.4.2.57.30azm5d1s.mp3</a> <a href="#longgame_mindtech_ty17.12.4.2.57.30azm5d1s">[script]</a>
-
-<a href="https://noliesplease.com/longgametech/mindtech/longgame_mindtech_25_guided_meditations.zip">Zip file of 25 guided meditations (34MB)</a>.
-
-[scripts]
 
 <a id="longgame_mindtech_ty17.11.28.4.20.19azm5d2s"></a>
 # longgame_mindtech_ty17.11.28.4.20.19azm5d2s
