@@ -40,7 +40,7 @@ Individual audio files:<br>
 
 <a id="longgame_mindtech_ty17.11.28.4.20.19azm5d2s"></a>
 # longgame_mindtech_ty17.11.28.4.20.19azm5d2s
-and focus now<br>
+focus now<br>
 focusing on the sensations of your body<br>
 focusing on the sensations of living<br>
 and as you're here now, noticing how your life can be different<br>
