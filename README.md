@@ -9,7 +9,7 @@ All of this art (scripts, recordings, etc) is dedicated to the public domain (vi
 
 (many more to be published)
 
-Individual audio files:
+Individual audio files:<br>
 <a href="https://noliesplease.com/longgametech/mindtech/longgame_mindtech_ty17.11.28.4.20.19azm5d2s.mp3">longgame_mindtech_ty17.11.28.4.20.19azm5d2s.mp3</a> <a href="#longgame_mindtech_ty17.11.28.4.20.19azm5d2s">[script]</a><br>
 <a href="https://noliesplease.com/longgametech/mindtech/longgame_mindtech_ty17.11.28.4.23.54azm5d2s.mp3">longgame_mindtech_ty17.11.28.4.23.54azm5d2s.mp3</a> <a href="#longgame_mindtech_ty17.11.28.4.23.54azm5d2s">[script]</a><br>
 <a href="https://noliesplease.com/longgametech/mindtech/longgame_mindtech_ty17.11.28.4.28.33azm5d2s.mp3">longgame_mindtech_ty17.11.28.4.28.33azm5d2s.mp3</a> <a href="#longgame_mindtech_ty17.11.28.4.28.33azm5d2s">[script]</a><br>
