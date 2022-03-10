@@ -2449,3 +2449,27 @@ things taking longer than you hoped, doesn't mean that you will never be who you
 you can rest, in this moment, free, and wise, and innovative, recognizing that the art that's important for you to express, you can learn, by being willing to practice, to have that, emotional, investment, to struggle, again, and again, and again, to learn what you are, and how to move, and be, with new devices, new systems<br>
 you can allow yourself to be free, now, free to explore new ways of expressing, and understanding that, just because things are hard now, doesn't mean that they will always be hard<br>
 you will become, who it is you want to be<br>
+
+...
+
+# longgame_mindtech_ty22.2.19.23.15.58pzm5d6s
+loving this moment now<br>
+loving this space that you are, and the being, the potency<br>
+loving all of the joy, all of the output of effort, that you do<br>
+and you get closer and closer, every moment working, and recognizing that you have that<br>
+and just as there is great art, there is so much love<br>
+just as there is so much greatness that exists, there is so much that you can have<br>
+there is so much joy, that you can have, so much deep appreciation, and so much love<br>
+and just as there is all of that<br>
+just as there is so much joy to feel from all of the great art, there is so much for you to create, as a great artist<br>
+recognizing that you don't have to fight<br>
+because there are ways to get where you are, there are ways to be who you are<br>
+and it will always take time<br>
+it will always take time for you to be who you are<br>
+and in that is such a deep peace, such a wonderful, glorious, gratifying moment<br>
+gratifying place to be, because you're free<br>
+you're free to love, you're free to be<br>
+you're free of that fear<br>
+you're free to be who you are, without always trying to be more<br>
+and in that you then can go even higher, with different struggles, different aims, and yet ever more beautiful
+
