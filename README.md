@@ -1,9 +1,9 @@
 
-# Longgame mindtech
+# Longgame Mindtech
 
-## Guided Meditations for Expanding Mind
+## Guided Meditations to Expand Mind
 
-These are guided meditations for expanding mind and increasing creativity, developed with Longgame Tech.
+These are guided meditations to expand mind, developed with Longgame Tech.
 
 All of this art (scripts, recordings, etc) is dedicated to the public domain (via the [0BSD license](https://choosealicense.com/licenses/0bsd/), the [CC0 license](https://choosealicense.com/licenses/cc0-1.0/), the [Unlicense](https://choosealicense.com/licenses/unlicense/), or your choice of whatever is most helpful). You can remix and reuse however you'd like, without attribution.
 
@@ -36,7 +36,7 @@ Individual audio files:
 <a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0024.mp3">LonggameTech_mindtech_0024.mp3</a> <a href="#LonggameTech_mindtech_0024">[script]</a>
 <a href="https://noliesplease.com/longgametech/mindtech/0001_to_0025/LonggameTech_mindtech_0025.mp3">LonggameTech_mindtech_0025.mp3</a> <a href="#LonggameTech_mindtech_0025">[script]</a>
 
-Here is a <a href="https://noliesplease.com/longgametech/zips/LonggameTech_mindtech_0001_to_0025.zip">zip file of the first 25 guided meditations</a>.
+<a href="https://noliesplease.com/longgametech/zips/longgame_mindtech_25_guided_meditations.zip">Zip file of 25 guided meditations (34MB)</a>.
 
 [scripts]
 
